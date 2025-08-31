@@ -4,4 +4,4 @@
 * I like making video games, and I like movies.
 * Discord: .averagetrash
 * Instagram: average._.trash
-* Contact: ameliasoloveoff@gmail.com
+* Contact: codysoloveoff@gmail.com
